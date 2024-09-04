@@ -20,6 +20,9 @@ Billiman2000 - your reliable partner in validation and moderation. 💪 I have m
 # Social links:
 
 👀 X- https://x.com/Billiman2000 
+
 👀 Gitbook - https://billiman2000.gitbook.io/billiman2000
+
 👀 Discord - https://discordapp.com/users/847428117232746529
+
 👀 Medium - https://medium.com/@Billiman2000
